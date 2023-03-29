@@ -65,3 +65,4 @@ Q：尺寸可以改变吗？
 A：好像可以，最大的有39mm直径，34mm长度	**Spigarelli** **Barebow Weight (5/16in) - 350g**
 
 结论：34mm直径和长度，大约250g，制作两个
+rmb260
