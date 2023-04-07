@@ -1,5 +1,6 @@
 受视频启发，自制配重。
-DIY BAREBOW WEIGHT PROJECT [How-To Tutorial]   author: Point On Archery 
+DIY BAREBOW WEIGHT PROJECT [How-To Tutorial]   author: Point On Archery  
+https://www.youtube.com/watch?v=UQNQ3Rdw5ds 
 使用数字除非标注单位，均为人民币或者英寸
 
 Q：螺纹的规格？
